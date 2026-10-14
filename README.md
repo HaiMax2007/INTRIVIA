@@ -10,3 +10,6 @@ Aku kira kegiatan INTRIVIA ini hanya menjadi ajang marah - marahan dan banyak - 
 
 ## Kesan Pesan Cluster 14 Sejauh Ini 
 Honestly, aku bersyukur banget bisa ada di cluster 14 ini dikarenakan orang - orangnya yang au koperatif terhadap segala kegiatan - kegiatan yang diadakan hampir setiap minggu nya untuk DTIF ini. Aku harap cluster ini bisa terus antusias menjalani banyak aktifitasnya hingga kita berpisah sebagai cluster nanti.
+
+## Harapan Kuliah 
+Tujuan utamanya memang untuk mendapatkan IPK 4 yang menjadi standar kesuksesan mahasiswa dalam melaksanakan kuliah. Namun selain itu, aku ingin juga mendapatkan relasi yang lebih luas dan juga mendapatkan pengalaman dalam hal berorganisasi dan bekerja demi menunjang masa - masa setelah kuliah nanti.
